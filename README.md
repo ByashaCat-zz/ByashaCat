@@ -2,7 +2,7 @@
 
 ### Contact me
 
-* Telegram: **@badByasha**
+* Telegram: **https://t.me/ohthatcatagain666**
 * E-mail: **ohthatcatagain@cock.li**
 * E-mail: **byashacat@cock.li**
 * Discord: **ByashaCat#3256**
